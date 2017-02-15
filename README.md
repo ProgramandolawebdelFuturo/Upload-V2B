@@ -4,11 +4,7 @@
 
 Curso | LINK
 ------------- | ------------
-Curso Premiere Pro CC 2017 esencial | https://openload.co/f/-JiEP9Vv7TU/HJG69GF0HG4.rar
 Curso Identidad visual para canal de TV | http://www.pastensn.com/MPsDH9L0
-Curso Cómo ejercer tu influencia | https://openload.co/f/RZz_VgcHtTg/JHGTF96G0HG.rar
-Curso Fundamentos del trabajo en equipo | https://openload.co/f/J6oiUjFm5sQ/TRRR9E6D0F4.rar
-Visual Studio Code | https://openload.co/f/xFGff5bhw3c/EE96FD0G4GHG.rar
 Curso C++ Punteros inteligentes | https://openload.co/f/k3xmfSC9Szs/EFF66G0HG45.rar
 Curso C++ Semántica de movimiento | https://openload.co/f/CBFn0aLKamA/GRR69F60HG.rar
 Curso Pensamiento computacional | https://openload.co/f/HGHPREaiS4E/YEE96F30H4H.rar
