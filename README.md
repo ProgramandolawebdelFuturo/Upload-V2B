@@ -1,10 +1,12 @@
-https://openload.co/f/Fn4FsnuS27U/Lego_Batman._la_pel%C3%ADcula_%282017%29_-_Latino_HDTS.avi.mp4
+
 # Upload-V2B
 
 ## www.descargasnsn.com
 
 Curso | LINK
 ------------- | ------------
+Curso Diseño de personajes en Cinema 4D: del boceto a la impresión 3D - Domestika | http://www.pastensn.com/OQyeHdXV
+Curso Identidad visual para canal de TV | 
 Curso Identidad visual para canal de TV | http://www.pastensn.com/MPsDH9L0
 Curso C++ Punteros inteligentes | https://openload.co/f/k3xmfSC9Szs/EFF66G0HG45.rar
 Curso C++ Semántica de movimiento | https://openload.co/f/CBFn0aLKamA/GRR69F60HG.rar
