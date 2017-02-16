@@ -6,7 +6,9 @@
 Curso | LINK
 ------------- | ------------
 Curso Diseño de personajes en Cinema 4D: del boceto a la impresión 3D - Domestika | http://www.pastensn.com/OQyeHdXV
-Curso Identidad visual para canal de TV | 
+Curso Lettering Animado - Aprende a diseñar y animar - Domestila | http://www.pastensn.com/5bKydfbw
+Curso Animación 3D y Post Producción en Cinema 4D y After Effects - CREHANA | http://www.pastensn.com/SMJtTJUr
+Curso Animación Publicitaria con fluidos 3D - CREHANA | https://openload.co/f/U6SmkH13Low/HG0FH64GFHGF5.rar
 Curso Identidad visual para canal de TV | http://www.pastensn.com/MPsDH9L0
 Curso C++ Punteros inteligentes | https://openload.co/f/k3xmfSC9Szs/EFF66G0HG45.rar
 Curso C++ Semántica de movimiento | https://openload.co/f/CBFn0aLKamA/GRR69F60HG.rar
