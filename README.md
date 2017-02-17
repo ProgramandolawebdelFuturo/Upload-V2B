@@ -2,6 +2,11 @@
 # Upload-V2B
 
 ## www.descargasnsn.com
+Rosetta Stone 5 v5.0.13 Plus (Español) Language Packs + Audio Companion
+
+http://www.pastensn.com/F7BdVfUO
+
+https://www.descargasnsn.com/cursos/page/33/
 
 Curso | LINK
 ------------- | ------------
