@@ -6,9 +6,23 @@
 Curso | LINK
 ------------- | ------------
 Curso Diseño de personajes en Cinema 4D: del boceto a la impresión 3D - Domestika | http://www.pastensn.com/OQyeHdXV
-Curso Lettering Animado - Aprende a diseñar y animar - Domestila | http://www.pastensn.com/5bKydfbw
+Curso Lettering Animado - Aprende a diseñar y animar - Domestika | http://www.pastensn.com/5bKydfbw
+Curso Caligrafía con góticas potentes - Domestika | http://www.pastensn.com/ZbewdSrA
+Curso Fotografía para la imaginación - Domestika | http://www.pastensn.com/Lyklwx59
+Curso Identidad visual handmade - Domestika| http://www.pastensn.com/xPX3Y0E5
+Curso Introducción a la Realidad Aumentada - Domestika | http://www.pastensn.com/SaYE4Vcc
+Curso Branding e Identidad: construcción y desarrollo de una marca | 
+Curso Java Desde Cero - Escuela Digital | http://www.pastensn.com/3cyKy98O
+Curso PHP Desde Cero - Escuela Digital | http://www.pastensn.com/u21mgh6O
+Curso Sass Desde Cero - Escuela Digital | http://www.pastensn.com/TWaTvHam
+Curso Base de Datos Desde Cero - Escuela Digital | http://www.pastensn.com/RLKf74Cg
+Curso WordPress Desde Cero - Escuela Digital | http://www.pastensn.com/VBuHsnGk
+Curso profesional de Bootstrap 4 - AulaIdeal | http://www.pastensn.com/7cLXPxf7
+Curso Desarrollo Ecommerce con PHP - Codigo Facilito | http://www.pastensn.com/tOn0yYjY
+Curso de Desarrollo Web Frontend 2016 - Codigo Facilito | http://www.pastensn.com/9vPmgh4X
 Curso Animación 3D y Post Producción en Cinema 4D y After Effects - CREHANA | http://www.pastensn.com/SMJtTJUr
 Curso Animación Publicitaria con fluidos 3D - CREHANA | https://openload.co/f/U6SmkH13Low/HG0FH64GFHGF5.rar
+--- |---
 Curso Identidad visual para canal de TV | http://www.pastensn.com/MPsDH9L0
 Curso C++ Punteros inteligentes | https://openload.co/f/k3xmfSC9Szs/EFF66G0HG45.rar
 Curso C++ Semántica de movimiento | https://openload.co/f/CBFn0aLKamA/GRR69F60HG.rar
@@ -45,54 +59,11 @@ Curso de SEO: Aprende a posicionar tu sitio en buscadores - CodigoFacilito |  ht
 Curso Comercio electrónico con PrestaShop: Módulos | http://www.pastensn.com/GDj4ug65
 Curso InDesign profesional: Tipografía y ortotipografía | https://openload.co/f/KW9nXopM1QU/LKUJJ0J1J4J5.rar
 Curso Servidores NAS Synology para profesionales y pymes | http://www.pastensn.com/sKIBEr7H
-Curso Java Desde Cero - Escuela Digital | http://www.pastensn.com/3cyKy98O
-Curso WordPress Desde Cero - Escuela Digital | http://www.pastensn.com/VBuHsnGk
-Curso de Desarrollo Web Frontend 2016 - Codigo Facilito | http://www.pastensn.com/9vPmgh4X
 Curso PHP avanzado: herramientas profesionales | http://www.pastensn.com/WrvhSedN
-Curso profesional de Bootstrap 4 - AulaIdeal | http://www.pastensn.com/7cLXPxf7
-Curso Desarrollo Ecommerce con PHP - Codigo Facilito | http://www.pastensn.com/tOn0yYjY
 Curso Comercio electrónico con PrestaShop: Personalización | http://www.pastensn.com/0ZB8DCBe
 Curso Maquetación y tipografía avanzada para web | http://www.pastensn.com/AecJfudD
 Curso Photoshop profesional: Automatizaciones y scripts | http://www.pastensn.com/6jLyWYwQ
 Curso Fundamentos de la ingeniería social para IT | http://www.pastensn.com/WvMQ9WIM
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 http://www.pastensn.com/GDj4ug65
 
